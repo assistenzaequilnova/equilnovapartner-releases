@@ -1,0 +1,2 @@
+# equilnovapartner-releases
+equilnovapartner aggiornamenti
